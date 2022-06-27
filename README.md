@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... L3
 - 🌱 I’m currently learning ... L3
 - 💞️ I’m looking to collaborate on ... L3
-- 📫 How to reach me ... send L3
+- 📫 How to reach me ... send L3 2 me
 
 <!---
 L34you/L34you is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
